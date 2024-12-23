@@ -1,6 +1,6 @@
 <div align="center">
     Hii :3
-<p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist<p>Knife n axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse enjoyer</p>
+<p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist
 
  <hr><b>PT boundaries:</b>
   <p>DNC | FF to H/C/Sit/Sleep next to | Does not RP
@@ -13,5 +13,5 @@
 <br>If 18+ FF to friend if we chatted/will chat again :D
 <br>If we yap a lot a lot ff to ask for discord
       <hr>
-<p>-Written by Evan :) (i'm so normal about knives)
+<p>-Written by Evan :)<br>Knife & axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse enjoyer
 </div>
