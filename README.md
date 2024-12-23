@@ -9,6 +9,8 @@
 <br>NO flirting/ NSFW topics at all if below 18 - will block
   <p>Interact first to engage into a convo (Warning for yap)
 <br>Tend to get easily distracted+offtab, whispering prefered to get the attention
-<br>If 18+ FF to friend if we chatted/will chat again :D<hr>
+<br>If 18+ FF to friend if we chatted/will chat again :D
+<br>If we yap a lot a lot ff to ask for discord
+      <hr>
 <p>-Written by Evan :)
 </div>
