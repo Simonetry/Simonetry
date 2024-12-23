@@ -4,6 +4,7 @@
 
  <hr><b>PT boundaries:</b>
   <p>DNC | H+C friendly | Does not RP
+<br>Do not ask for alters to come forward
 <br>No serious flirting
 <br>NO flirting/ NSFW topics at all if below 18 - will block
   <p>Interact first to engage into a convo (Warning for yap)
