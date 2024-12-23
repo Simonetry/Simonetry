@@ -9,5 +9,5 @@
   <p>Interact first to engage into a convo (Warning for yap)
 <br>(Tend to get easily distracted, whispering prefered to get notifs)
 <br>If 18+ FF to friend if we chatted/will chat again :D
-<p>-Evan
+<p>-Written by Evan :)
 </div>
