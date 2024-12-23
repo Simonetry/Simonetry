@@ -13,5 +13,5 @@
 <br>If 18+ FF to friend if we chatted/will chat again :D
 <br>If we yap a lot a lot ff to ask for discord
       <hr>
-<p>-Written by Evan :)
+<p>-Written by Evan :) (i'm so normal about knives)
 </div>
