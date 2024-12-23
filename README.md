@@ -4,5 +4,5 @@
 
  <hr><b>PT boundaries:</b>
   <p>DNC | H+C friendly | Does not RP
-  <p>Interact first to engage into a convo (Warning for yap)
+  <p>Interact first to engage into a convo (Warning for yap)<br>FF to friend if we chatted/will chat again :D
 </div>
