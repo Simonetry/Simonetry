@@ -6,7 +6,7 @@
   <p>DNC | FF to H/C/Sit/Sleep next to | Does not RP as the sources
 <br>Do not ask for alters to come forward
 <br>Our skins are of ourselves unless stated '| OC'
-<br>No serious flirting
+<br>Friendly flirting is fine
 <br>NO flirting/ NSFW topics <i>at all</i> if below 18 - will result in block
   <p>Interact first to engage into a convo (Warning for yap)
 <br>Tend to get easily distracted+offtab, whispering prefered to get attention
