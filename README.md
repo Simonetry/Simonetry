@@ -5,5 +5,7 @@
  <hr><b>PT boundaries:</b>
   <p>DNC | H+C friendly | Does not RP
 <br>NO NSFW topics if below 18 - will block | No serious flirting
-  <p>Interact first to engage into a convo (Warning for yap)<br>FF to friend if we chatted/will chat again :D
+  <p>Interact first to engage into a convo (Warning for yap)
+<br>(Tend to get easily distracted, whispering prefered to get notifs)
+<br>FF to friend if we chatted/will chat again :D
 </div>
