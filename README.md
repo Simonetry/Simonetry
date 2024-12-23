@@ -8,7 +8,7 @@
 <br>No serious flirting
 <br>NO flirting/ NSFW topics at all if below 18 - will block
   <p>Interact first to engage into a convo (Warning for yap)
-<br>(Tend to get easily distracted, whispering prefered to get notifs)
+<br>Tend to get easily distracted+offtab, whispering prefered to get the attention
 <br>If 18+ FF to friend if we chatted/will chat again :D<hr>
 <p>-Written by Evan :)
 </div>
