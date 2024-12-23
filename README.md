@@ -3,7 +3,7 @@
 <p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist<p>Knife n axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse enjoyer</p>
 
  <hr><b>PT boundaries:</b>
-  <p>DNC | H+C friendly | Does not RP
+  <p>DNC | H+C+Sit/Sleep friendly | Does not RP
 <br>Do not ask for alters to come forward
 <br>No serious flirting
 <br>NO flirting/ NSFW topics at all if below 18 - will block
