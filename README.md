@@ -3,7 +3,7 @@
 <p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist
 
  <hr><b>PT boundaries:</b>
-  <p>DNC | FF to H/C/Sit/Sleep next to | Does not RP
+  <p>DNC | FF to H/C/Sit/Sleep next to | Does not RP as the sources
 <br>Do not ask for alters to come forward
 <br>Our skins are of ourselves unless stated '| OC'
 <br>No serious flirting
