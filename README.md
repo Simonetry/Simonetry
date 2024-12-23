@@ -1,6 +1,6 @@
 <div align="center">
     Hii :3
-<p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist<p>Knife/horror/metal/rock/EMD/creepypasta/slenderverse enjoyer</p>
+<p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist<p>Knife n axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse enjoyer</p>
 
  <hr><b>PT boundaries:</b>
   <p>DNC | H+C friendly | Does not RP
