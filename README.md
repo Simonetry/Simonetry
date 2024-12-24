@@ -5,7 +5,7 @@
  <hr><b>PT boundaries:</b>
   <p>DNC | FF to H/C/Sit/Sleep next to | Does not RP as the sources
 <br>Do not ask for alters to come forward
-<br>Our skins are of ourselves unless stated '| OC'
+<br>Our skins are of ourselves stated [🐇 SYS] if OC then stated '| OC'
 <br>Friendly flirting is fine
 <br>NO flirting/ NSFW topics <i>at all</i> if below 18 - will result in block
   <p>Interact first to engage into a convo (Warning for yap)
