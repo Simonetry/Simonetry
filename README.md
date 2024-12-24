@@ -9,7 +9,7 @@
 <br>Friendly flirting is fine unless you see someone not being fine with it :)
 <br>NO flirting/ NSFW topics <i>at all</i> if below 18 - will result in block
   <p>Interact first to engage into a convo (Warning for yap)
-<br>Tend to get easily distracted+offtab, whispering prefered to get attention
+<br>Tend to get easily distracted+offtab, whispering prefered to get quick attention
 <br>If 18+ FF to friend if we chatted/will chat again :D
 <br>If we yap a lot a lot ff to ask for discord
       <hr>
