@@ -13,7 +13,7 @@
 <br>If 18+ FF to friend if we chatted/will chat again :D
 <br>If we yap a lot a lot ff to ask for discord
       <hr>
-<p>-Written by Evan :) and a little about me:<br>Knife & axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse enjoyer
-<br>And others who may also appear:
+<p>-Written by Evan :) and a little about me:<br>Knife & axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse/html/webdesigning enjoyer
+<br><br><b>And others who may also appear:</b>
 <br>HABIT (IWC) | Observer | Tim | Tobes
 </div>
