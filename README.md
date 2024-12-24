@@ -14,6 +14,6 @@
 <br>If we yap a lot a lot ff to ask for discord
       <hr>
 <p>-Written by Evan :) and a little about me:<br>Knife & axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse enjoyer
-<br>And a bit others who may also appear:
-<br>HABIT (IWC) | Observer | Tim
+<br>And others who may also appear:
+<br>HABIT (IWC) | Observer | Tim | Tobes
 </div>
