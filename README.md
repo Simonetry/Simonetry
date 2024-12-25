@@ -15,6 +15,6 @@
       <hr>
 <p>-Written by Evan :) and a little about me:<br>Knife & axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse/html/webdesigning enjoyer
 <br><br><b>And other alters who may also appear:</b>
-<br>HABIT (IWC if sensitive) he's not bad lol
+<br>HABIT (IWC if sensitive) but not because he's bad lol
     <br>Observer | Tim | Tobes and possibly others
 </div>
