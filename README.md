@@ -13,7 +13,7 @@
 <br>If 18+ FF to friend if we chatted/will chat again :D
 <br>If we yap a lot a lot ff to ask for discord
       <hr>
-<p>-Written by Evan :) and a little about me:<br>Current host<br>Knife & axe/horror/metal/rock/EMD/urbex/creepypasta/slenderverse/html/webdesigning enjoyer
+<p>-Written by Evan :) and a little about me:<br>Current host<br>Knife & axe/ horror/ metal/ rock/ EMD/ urbex/ creepypasta/ slenderverse/ html/ webdesigning enjoyer
 <br><br><b>And other alters who may also appear:</b>
 <br>FEELING SILLAY aka HABIT (IWC if sensitive) but not because he's bad lol
     <br>Observer | Tim | Tobes and possibly others
