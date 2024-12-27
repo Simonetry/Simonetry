@@ -1,7 +1,7 @@
 <div align="center">
     Hii :3
 <p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist
- <hr><br>online = on tab | away = offtab/afk (whisper for quick attention) | busy = AFK/busy offtab
+ <hr><br>online = on tab | away = offtab/afk (whisper for quick attention) | busy = AFK/busy offtab<br>
   <br><b>PT boundaries:</b>
   <p>DNC | FF to H/Sit/Sleep next to | Does not RP
 <br>Do not ask for alters to come forward
