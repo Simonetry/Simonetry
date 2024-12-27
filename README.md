@@ -4,10 +4,10 @@
  <hr>online = on tab | away = offtab/afk (whisper for quick attention) | busy = AFK/busy offtab
     <br><br>
  <b>PT boundaries:</b>
-  <p>DNC | FF to boop/hide/sit/lay next to, ask to cuddle  | Does not RP
+  <p>DNC | FF to boop/sit/lay next to, ask to hide/cuddle  | Does not RP
 <br>IF 18+ platonic flirting* (inc. kisses) is fine, if someone says no then respect that
 <br>NO flirting/ NSFW topics <i>at all</i> if below 18, even if you're almost 18 - will result in block
-<br>None of the plushies worn are shipped, not shipping in the game in general
+<br>Don't assume the plush is being shipped, not shipping in the game in general just hanging out
   <p>Interact first to engage into a convo (Warning for yap)
 <br>If 18+ FF to friend if we chatted/will chat again :D
 <br>If we yap a lot a lot ff to ask for discord
