@@ -13,6 +13,6 @@
       <hr>
 <p>-Written by Evan :) and a little about me:<br>Current host<br>Knife & axe/ horror/ metal/ rock/ EMD/ urbex/ creepypasta/ slenderverse/ html/ webdesigning enjoyer
 <br><br><b>And other alters who may also appear:</b>
-<br>FEELING SILLAY aka HABIT (IWC if sensitive) but not because he's bad lol
+<br>FEELING SILLAY aka HABIT
     <br>Observer | Tim | Tobes and possibly others
 </div>
