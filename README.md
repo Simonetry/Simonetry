@@ -3,7 +3,7 @@
 <p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist
  <hr><br>online = on tab | away = offtab/afk (whisper for quick attention) | busy = AFK/busy offtab<br>
   <br><b>PT boundaries:</b>
-  <p>DNC | FF to hide/sit/sleep next to | Does not RP
+  <p>DNC | FF to hide/sit/lay next to | Does not RP
 <br>Do not ask for alters to come forward
 <br>IF 18+ Friendly flirting (inc. kisses) is fine unless you see someone not being fine with it :) ask for cuddles
 <br>NO flirting/ NSFW topics <i>at all</i> if below 18, even if you're almost 18 - will result in block
