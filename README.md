@@ -1,15 +1,15 @@
 <div align="center">
     Hii :3
 <p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist
+ <hr><br>online = on tab | away = offtab/afk (whisper for quick attention) | busy = busy offtab/dniuc
 
- <hr><b>PT boundaries:</b>
-  <p>DNC | FF to H/C/Sit/Sleep next to | Does not RP as the sources
+  <br><b>PT boundaries:</b>
+  <p>DNC | FF to H/Sit/Sleep next to | Does not RP as the sources
 <br>Do not ask for alters to come forward
 <br>Our skins are of ourselves stated [🐇 SYS] if OC then stated '| OC'
-<br>Friendly flirting is fine unless you see someone not being fine with it :)
+<br>Friendly flirting (inc. kisses) is fine unless you see someone not being fine with it :) ask for cuddles
 <br>NO flirting/ NSFW topics <i>at all</i> if below 18, even if you're almost 18 - will result in block
   <p>Interact first to engage into a convo (Warning for yap)
-<br>Tend to get easily distracted+offtab, whispering prefered to get quick attention
 <br>If 18+ FF to friend if we chatted/will chat again :D
 <br>If we yap a lot a lot ff to ask for discord
       <hr>
