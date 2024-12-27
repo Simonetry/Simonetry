@@ -5,7 +5,6 @@
   <br><b>PT boundaries:</b>
   <p>DNC | FF to H/Sit/Sleep next to | Does not RP
 <br>Do not ask for alters to come forward
-<br>Our skins are of ourselves stated [🐇 SYS] if OC then stated '| OC'
 <br>IF 18+ Friendly flirting (inc. kisses) is fine unless you see someone not being fine with it :) ask for cuddles
 <br>NO flirting/ NSFW topics <i>at all</i> if below 18, even if you're almost 18 - will result in block
   <p>Interact first to engage into a convo (Warning for yap)
