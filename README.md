@@ -8,7 +8,7 @@
 <br>IF 18+ platonic flirting* (inc. kisses) is fine, if someone says no then respect that
 <br>NO flirting/ NSFW topics <i>at all</i> if below 18, even if you're almost 18 - will result in block
 <br>Don't assume a plush is being shipped, same with sitting next to someone
-  <p>Interact first to engage into a convo (Warning for yap)
+  <p>Interact first to engage into a convo (may yap)
 <br>If 18+ FF to friend if we chatted/will chat again :D
 <br>If we yap a lot a lot ff to ask for discord
       <hr>
