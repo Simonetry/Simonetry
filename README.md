@@ -3,7 +3,7 @@
 <p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist
  <hr><br>online = on tab | away = offtab/afk (whisper for quick attention) | busy = AFK/busy offtab
   <br><b>PT boundaries:</b>
-  <p>DNC | FF to H/Sit/Sleep next to | Does not RP as the sources
+  <p>DNC | FF to H/Sit/Sleep next to | Does not RP
 <br>Do not ask for alters to come forward
 <br>Our skins are of ourselves stated [🐇 SYS] if OC then stated '| OC'
 <br>IF 18+ Friendly flirting (inc. kisses) is fine unless you see someone not being fine with it :) ask for cuddles
