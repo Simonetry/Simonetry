@@ -1,20 +1,20 @@
-<div align="center">
-    Hii :3
-<p>25+ | 🇸🇪 <b>swe</b>/pl/eng | Insomniac with DID+ADHD | Digital artist
- <hr>online = on tab | away = offtab/afk (whisper for quick attention) | busy = AFK/busy offtab
-    <br><br>
- <b>PT boundaries:</b>
-  <p>DNC | FF to boop/sit/lay next to, ask to hide/cuddle  | Does not RP
-<br>IF 18+ platonic flirting* (inc. kisses) is fine, if someone says no then respect that
-<br>NO flirting/ NSFW topics <i>at all</i> if below 18, even if you're almost 18 - will result in block
-<br>Don't assume a plush is being shipped, same with sitting next to someone
-  <p>Interact first to engage into a convo (may yap)
-<br>If 18+ FF to friend if we chatted/will chat again :D
-<br>If we yap a lot a lot ff to ask for discord
-      <hr>
-<p>-Written by Evan :) and a little about me:<br>Current host<br>Knife & axe/ horror/ metal/ rock/ EMD/ urbex/ creepypasta/ slenderverse/ html/ webdesigning enjoyer
-<br><br><b>And other alters who may also appear:</b>
-<br>FEELING SILLAY aka HABIT
-    <br>Observer | Tim | Tobes and possibly others
-    <br><br><i>Do not ask for alters to come forward
-</div>
+/* S!DETRACKED · SYSTEM LOG v1.0.
+<br>last_updated: 2026-04-24
+<br>status: active
+<br>@identity: 🇸🇪 swe/pl/eng · 25+ · DID + ADHD */
+
+// /* DIAGNOSTIC_NOTES */
+   <br>"// note: values may fluctuate per active fronter"
+   <br>"// current_host: Evan"
+
+// /* KNOWN_ISSUES */
+  <br> `[conditions]`  : insomnia, polyfragmented DID, ADHD +
+   <br>`[status]`      : online = on tab | away = offtab | busy = AFK
+
+// /* SYSTEM_CORE */
+    <br>`[Protocol]`    : do not ask for specific alters to front
+
+// @links
+<br>[Personal Site]([https://neocities.org](https://1997.ju.mp/))
+<br>[PonyTown Boundaries](./ponytown.md)
+<br>[Spotify](https://open.spotify.com/user/115338160?si=CWgDhMqtSFWC8UkTQWX22g)
