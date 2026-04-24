@@ -1,7 +1,7 @@
-/* S!DETRACKED · SYSTEM LOG v1.0.
+/* S!DETRACKED · SYSTEM LOG v?.??
 <br>last_updated: 2026-04-24
 <br>status: active
-<br>@identity: 🇸🇪 swe/pl/eng · 25+ · DID + ADHD */
+<br>@identity: 🇸🇪 swe/pl/eng · 25+ · PF-DID + ADHD + */
 
 // /* DIAGNOSTIC_NOTES */
    <br>"// note: values may fluctuate per active fronter"
