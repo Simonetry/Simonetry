@@ -15,6 +15,6 @@
     <br>`[Protocol]`    : do not ask for specific alters to front
 
 // @links
-<br>[Personal Site]([https://neocities.org](https://1997.ju.mp/))
+<br>[Personal Site](https://1997.ju.mp/)
 <br>[PonyTown Boundaries](https://github.com/Simonetry/ponytown.md)
 <br>[Spotify](https://open.spotify.com/user/115338160?si=CWgDhMqtSFWC8UkTQWX22g)
