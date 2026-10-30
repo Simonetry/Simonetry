@@ -8,7 +8,7 @@
    <br>"// current_host: Tenna (source: Deltarune)"
 
 // /* KNOWN_ISSUES */
-  <br> `[conditions]`  : insomnia, polyfragmented DID (110), ADHD +
+  <br> `[conditions]`  : insomnia, polyfragmented DID (110+ (that inc. fragments), ADHD +
    <br>`[status]`      : online = on tab | away = offtab | busy = AFK
 
 // /* SYSTEM_CORE */
